@@ -1,7 +1,6 @@
-## Hi there 👋
+$$ \color{blue}{\text{Welcome to my GitHub profile!}} $$
 
 
-https://64.media.tumblr.com/f0d91a717bb061c91755394a50ead84a/8349cc88b35a4ec4-55/s1280x1920/7f34bb855403604b4f14b7e97006e1e280573464.pnj
 <!--
 **filecalliope/filecalliope** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
