@@ -6,7 +6,7 @@ hi! i'm $\color{#97c1d1}{\text{callow/cal}}$ or $\color{#97c1d1}{\text{cho}}$. ~
 
 <img width="1080" height="11" alt="blue" src="https://github.com/user-attachments/assets/2fe47fda-97e3-4975-8424-6bd02bead57a" />
 <br><br>
-★ dni: basic dni criteria (homophobia, racism, ableism etc), you use slurs you can't reclaim, people who don't specify tone, void skins, anyone younger than 16 (outside of X-B0T's), nsfw and people looking to e-date.
+★ dni: basic dni criteria (homophobia, racism, ableism etc), you use slurs you can't reclaim, people who don't specify tone, void skins, anyone younger than 16 (outside of regiments), nsfw and people looking to e-date. i can't believe i have to mention this, but dni proshippers, and anyone within that crowd of people.
 <br><br>
 ☆ byi: i struggle with tone, i don't curse, i'm not interested in dating, 
 <br><br>
