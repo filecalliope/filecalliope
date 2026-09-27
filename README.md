@@ -10,7 +10,7 @@ hi! i'm $\color{#97c1d1}{\text{callow/cal}}$ or $\color{#97c1d1}{\text{cho}}$. ~
 <br><br>
 ☆ byi: i struggle with tone, i don't curse, i'm not interested in dating, 
 <br><br>
-★ fandoms int: homestuck, jjk, roblox, splatoon, + species! read more interests on my carrd!
+★ fandoms int: homestuck, jjk, roblox, splatoon, + species! read more interests on my carrd! i love big walk, please ask me about it.
 
 
 ### pony town rules: 
@@ -24,7 +24,7 @@ hi! i'm $\color{#97c1d1}{\text{callow/cal}}$ or $\color{#97c1d1}{\text{cho}}$. ~
 
 ### symbols on pony town: 
 - AFK:  OFFTAB or BUSY, will probably take a bit or respond to whispers
-- DNI: Working on Ponies/School Work , will only respond to friends
-- ONLINE: With X-B0T's, INT Freely
+- DNI: Working on Ponies/School Work , In an Event (Will respond to whispers from friends)
+- ONLINE: With X-B0T's, TNS or SANGO, INT Freely, Come and Chat!
 <br><br>
 <img width="2048" height="246" alt="fiv2" src="https://github.com/user-attachments/assets/03bd0c65-1a9a-4528-ae2b-7a1ca28706e4" />
